@@ -1,0 +1,4 @@
+- Hi, I’m Ankit 
+- I’m interested in learning game devloping
+- I’m currently learning gd script
+- How to reach me - you can contact me on gmail ankitsingh05082010@gamil.com ,i was not born on 2010 ankit singh 050802004 wasnt available
